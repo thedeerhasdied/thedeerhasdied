@@ -8,5 +8,5 @@
                             resident evil,ㅤstardew valley,ㅤ&ㅤelden ring fans int pwease 
 
  
-                                            basic dni criteriaㅤ
+                                               basic dni criteriaㅤ
   
