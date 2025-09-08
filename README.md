@@ -9,7 +9,5 @@
                     basic dni criteriaㅤ-ㅤi blockㅤaandㅤhide freely !!
 
                                      me asf
-                                     
-    
-             ![7d370fcdc8714bbe5e28413e276885ef](https://github.com/user-attachments/assets/d85812b4-cd9b-432a-86ab-12784622ac48)
+![7d370fcdc8714bbe5e28413e276885ef](https://github.com/user-attachments/assets/c204ae72-305d-4b4f-803a-d9aaa41ec696)
 
