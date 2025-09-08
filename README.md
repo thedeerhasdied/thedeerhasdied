@@ -11,7 +11,7 @@
   
                                                     basic dni criteriaㅤ
   
-                                                         ⌖ me asf
+                                                         ⌖ me af brah
 
   
    
