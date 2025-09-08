@@ -11,8 +11,7 @@
   
                                                     basic dni criteriaㅤ
   
-                                                         ⌖ me af brah
+                                                         ⌖ me and gang
 
   
-   
-   ![2ffaa73f3d8b198fedb7134d02603666](https://github.com/user-attachments/assets/fb28ef47-3115-4dda-95ba-16b1d29078dd)
+   ![a9c332fd06cbbe59e82d669a83096929](https://github.com/user-attachments/assets/78aa5bad-46d0-4053-be4d-aea84317598b)
