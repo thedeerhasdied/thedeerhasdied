@@ -12,6 +12,7 @@
                                                   basic dni criteriaㅤ!!
   
                                                             ⌖ 
-  ![d49dadaa1aa796aaf98096baafc50f9e](https://github.com/user-attachments/assets/a4be8bf9-521e-43ed-8385-28e174336373)
+   ![db94d1021ef214353dc3c0efe8a3929e](https://github.com/user-attachments/assets/142993f9-6916-47c4-94a6-3b5304ad6457)
+
 
 
