@@ -3,7 +3,7 @@
                           c+h  always welcomedㅤi'm typically off-tab so whisper is much preferred :p
 
 
-                    dead poets society,ㅤ star wars,ㅤ dexter,ㅤpeacemaker,ㅤfourmula 1,ㅤstranger things,
+                    dead poets society,ㅤ star wars,ㅤ dexter,ㅤpeacemaker,ㅤformula 1,ㅤstranger things,
 
   
                             resident evil,ㅤstardew valley,ㅤ&ㅤelden ring fans int pwease 
