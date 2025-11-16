@@ -6,7 +6,7 @@
                     dead poets society,ㅤ star wars,ㅤ dexter,ㅤpeacemaker,ㅤformula 1,ㅤstranger things,
 
   
-                            resident evil,ㅤstardew valley,ㅤ&ㅤelden ring fans int pwease 
+                            resident evil,ㅤmarvel,ㅤ&ㅤelden ring fans int pwease 
 
   
                                                   basic dni criteriaㅤ!!
